@@ -1,2 +1,2 @@
-# [Download My Resume](./resume.pdf)
+# [Download My Resume](./Tariq Alshwaiki Resume.pdf)
 
